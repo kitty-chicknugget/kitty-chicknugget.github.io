@@ -9,7 +9,7 @@ Here are all of her books in the series:
 
 ![Wings of Fire 1 - The Dragonet Prophecy](/assets/images/wings-of-fire-all.jpg)
 
-These are all of the books in the series, not including the extras.
+_These are all of the books in the series, not including the extras._
 
 ## First up - Wings of Fire #1: The Dragonet Prophecy
 
